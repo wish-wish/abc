@@ -22,5 +22,5 @@ C、9X9
 <br/>
 <div class="left"><br/>多多少少都可以，谢谢！建议1分~100元</div>
 <br/>
-<img src="IMG_20210221_145132.jpg" height="150" width="148" />
+<img src="IMG_20210221_145132.jpg"/>
 <br/>
