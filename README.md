@@ -13,7 +13,7 @@ B、2X2-AXA, except the 9X9
 <br/>
 C、9X9
 <br/>
-1、use HodoKu.exe to topic and solutionsteps
+1、use HodoKu.exe to create topic puzzle and solutionsteps
 <br/>
 <br/>
 <div class="left">微信<br/><img src="cc_wx.png" height="150" width="148" /></div>
