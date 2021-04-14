@@ -15,6 +15,17 @@ C、9X9
 <br/>
 1、use HodoKu.exe to create topic puzzle and solutionsteps
 <br/>
+for some reason, i am seeking job now,  if you are interesting<br/>
+<br/>
+please mail me : 12092020@qq.com<br/>
+or call me: +8613860624608<br/>
+mr caicheng lin<br/>
+<br/>
+sincerely.
+<br/>
+unmarried need a girl friend.
+<br>
+sincerely.
 <br/>
 <div class="left">微信<br/><img src="cc_wx.png" height="150" width="148" /></div>
 <br/>
