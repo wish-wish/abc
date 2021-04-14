@@ -20,12 +20,10 @@ for some reason, i am seeking job now,  if you are interesting<br/>
 please mail me : 12092020@qq.com<br/>
 or call me: +8613860624608<br/>
 mr caicheng lin<br/>
+sincerely.<br/>
 <br/>
-sincerely.
-<br/>
-unmarried need a girl friend.
-<br>
-sincerely.
+unmarried need a girl friend.<br>
+sincerely.<br/>
 <br/>
 <div class="left">微信<br/><img src="cc_wx.png" height="150" width="148" /></div>
 <br/>
